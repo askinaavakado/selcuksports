@@ -1,4 +1,4 @@
-# selcuksports
+# selcukspor
 **⚽ Selçukspor | Alanyaspor 🆚 Galatasaray Maçı İzle | Canlı Maç İzle | Selçukspor 🏆🎥**
 # CANLI MAÇ İZLEMEK İÇİN TIKLA! 🎥🏆
 
@@ -12,9 +12,9 @@
 - **Trabzonspor - Başakşehir [Maçı Canlı İzle](https://heylink.me/pipososyal/)**
 - **Alanyaspor - Galatasaray [Maçı Canlı İzle](https://heylink.me/pipososyal/)**
 
-📺 Alanyaspor - Galatasaray Maçı Canlı İzle! 🏆⚽
-📢 Süper Lig'de heyecan devam ediyor! Galatasaray, deplasmanda Alanyaspor'a konuk oluyor!
-📺 HD kalitesinde, sürekli ve donmadan canlı maç izlemek için aşağıya tıklayın!
+**📺 Alanyaspor - Galatasaray Maçı Canlı İzle! 🏆⚽**
+**📢 Süper Lig'de heyecan devam ediyor! Galatasaray, deplasmanda Alanyaspor'a konuk oluyor!**
+**📺 HD kalitesinde, sürekli ve donmadan canlı maç izlemek için aşağıya tıklayın!**
 
 ✅ **Canlı Maç Yayını 📡**
 ✅ **Full HD Görüntü Kalitesi 🎥**
@@ -23,10 +23,6 @@
 ✅ **Mobil ve PC Uyumlu Yayınlar 📱💻**
 
 📌 **ALANYASPOR - GALATASARAY MAÇINI CANLI İZLEMEK İÇİN TIKLAYIN**
-
-🎯 **Selçuksports - Canlı Maç Yayınları! 🏟️📡**
-⚽ **Süper Lig, UEFA Avrupa Ligi, Şampiyonlar Ligi, Premier Lig, La Liga, Bundesliga ve daha fazlası!**
-🎙️ **Türkçe Spikerli Yayınlar & Donmadan HD Kalitesinde Canlı Maç İzle!**
 
 📡 **Alanyaspor Galatasaray maçı canlı izle, Süper Lig maçı izle, kesintisiz maç yayını, Alanyaspor maçı izle, Galatasaray maçı izle, futbol maçları canlı yayın gibi tüm anahtar kelimeler burada!**
 
