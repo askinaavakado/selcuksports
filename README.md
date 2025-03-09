@@ -41,3 +41,9 @@ Alanyaspor - Galatasaray Maçı Canlı İzle
 👉 ALANYASPOR - GALATASARAY MAÇINI CANLI İZLEMEK İÇİN TIKLAYIN
 
 🎉 Selçuksports ile HD kalitesinde futbolun karşılığını alır! ⚽🔥
+#mac-izle
+#canli-mac
+#selcuksports
+#justin-tv
+#bein-sports
+#futbol-yayinlari
