@@ -2,7 +2,7 @@
 ⚽ Selçukspor | Alanyaspor 🆚 Galatasaray Maçı İzle | Canlı Maç İzle | Selçukspor 🏆🎥
 # CANLI MAÇ İZLEMEK İÇİN TIKLA! 🎥🏆
 
-[![Canlı Maç İzle](https://t2m.io/PipoGuncel)
+[Canlı Maç İzle](https://t2m.io/PipoGuncel)
 
 ## ✨ **Selçuksports - Justin TV - Canlı Maç Yayınları**
 
