@@ -1,5 +1,5 @@
 # selcukspor
-**⚽ Selçukspor | Alanyaspor 🆚 Galatasaray Maçı İzle | Canlı Maç İzle | Selçukspor 🏆🎥**
+**⚽ Selçukspor | Beşiktaş 🆚 Gaziantep FK Maçı İzle | Canlı Maç İzle | Selçukspor 🏆🎥**
 # CANLI MAÇ İZLEMEK İÇİN TIKLA! 🎥🏆
 
 **[Canlı Maç İzle](https://t2m.io/PipoGuncel)**
