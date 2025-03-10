@@ -20,7 +20,7 @@
 
 **📡 Beşiktaş Gaziantep FK maçı canlı izle, Süper Lig maçı izle, kesintisiz maç yayını, Gaziantep FK maçı izle, Beşiktaş maçı izle, futbol maçları canlı yayın gibi tüm anahtar kelimeler burada!**
 
-**📢 Kesintisiz canlı yayın için: 👉 MAÇI CANLI İZLEMEK İÇİN TIKLAYIN**
+**📢 Kesintisiz canlı yayın için: 👉 MAÇI CANLI İZLEMEK İÇİN TIKLAYIN** (https://heylink.me/pipososyal/)
 
 **🚀 Beşiktaş - Gaziantep FK Maçını Kaçırmayın! ⚽🔥**
 **🔗 Güncellenen maç linkleri ve en hızlı yayınlar için bizi takip edin:**
